@@ -3,7 +3,7 @@ Paw Prints to the Timechain:
 
 ![](https://bitcoinbarks.com/gallery_gen/031469b6073b1619e0d3cd847efa0943_fit.png)
 
-### Introduction: Who is BitcoinPup?\
+### Introduction: Who is BitcoinPup?
 I am the kind of person who finds receiving gifts stressful. 
 
 Call me a narcissist. 
